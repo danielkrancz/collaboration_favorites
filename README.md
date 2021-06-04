@@ -1,4 +1,4 @@
-## Top 5 Harry Potter Characters
+## Top 6 Harry Potter Characters
 1. Severus Tobias Snape
 2. Hermione Jean Granger
 3. Minerva McGonagall
